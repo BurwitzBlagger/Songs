@@ -37,6 +37,7 @@ Cần lắm
 Điều bí mật
 Tìm lại bầu trời
 Cưới nhau đi
+Với em là mãi mãi
 ### Hoàng Dũng
 Chờ anh nhé
 Đi đâu để thấy hoa bay
