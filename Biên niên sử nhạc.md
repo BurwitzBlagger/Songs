@@ -1,6 +1,6 @@
 Dòng máu lạc hồng/You raise me up
 Bảy sắc cầu vồng - mầm non sơn ca
-NCS
+NCS - EDM shit (2016-2019)
 Đi đu đưa đi, Hãy trao cho a, Closer, Everything I need - hè 2019
 nhạc liên quan minecraft - meme - gaming: 2020 - 2021
 Rap việt: đầu 2021, còn đến hè 2021

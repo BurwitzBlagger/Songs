@@ -31,13 +31,14 @@ Tôi tin
 Anh yêu em nhiều lắm
 Chưa bao giờ mẹ kể
 Lời nhắn của mưa
-Suy nghĩ trong mưa
+Suy nghĩ trong anh
 Yêu một người phải chăng lầm lỗi
 Cần lắm
 Điều bí mật
 Tìm lại bầu trời
 Cưới nhau đi
 Với em là mãi mãi
+Im losing you
 ### Hoàng Dũng
 Chờ anh nhé
 Đi đâu để thấy hoa bay
