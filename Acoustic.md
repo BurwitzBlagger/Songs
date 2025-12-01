@@ -1,4 +1,3 @@
-### Acoustic
 Mơ - A  - belt C#5 
 Thu cuối
 Ngày mai em đi

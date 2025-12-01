@@ -9,4 +9,5 @@ Bolero/Quang Lê: từ tết 2023 - carry hè 2023, hết năm học 23-24
 The Weeknd: từ tầm t10 2023 trở đi 
 Ballad việt: đầu năm học 23-24
 BAT: đầu 2024 - hiện tại
-Cuối hè 2025: nhạc nhật, wibu shit
+Opera: đầu 2025 + hè 2025
+Cuối hè 2025: nhạc nhật, wibu shit, một đống live BAT mới

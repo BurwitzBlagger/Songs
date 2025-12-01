@@ -2,6 +2,7 @@
 Đừng xóa tên anh
 Tháp rơi tự do
 Shiawase no reshipi tone F#
+Nói với em rằng (Official Audio)
 ### Núi cao
 Lặng yên
 Tái bút anh yêu em
@@ -14,7 +15,6 @@ Chỉ còn lại tình yêu
 Nơi tình yêu bắt đầu
 Cưới nhau đi
 Người mãi vì em/Người em mãi chờ
-Chờ anh nhé
 Cơn mưa tình yêu
 Trót yêu
 Bức thư tình đầu tiên
@@ -24,3 +24,10 @@ Dẫu có lỗi lầm
 Anh sẽ nhớ mãi
 Unchained melody
 Cầu hôn
+
+### Đi bộ trên phố về đêm
+Anh tự do nhưng cô đơn
+Lời nhắn của mưa
+
+### Hải Dương
+Lạc nhau có phải muôn đời

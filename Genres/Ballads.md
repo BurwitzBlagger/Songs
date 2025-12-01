@@ -39,6 +39,7 @@ Tìm lại bầu trời
 Cưới nhau đi
 Với em là mãi mãi
 Im losing you
+Chàng khờ thủy chung
 ### Hoàng Dũng
 Chờ anh nhé
 Đi đâu để thấy hoa bay
@@ -103,6 +104,7 @@ Sóng gió
 Anh (Em)
 Một đời
 Thương em là điều anh không thể ngờ
+Những kẻ mộng mơ
 Anh cứ đi đi - Fm - fals D#5
 Ngày mai người ta lấy chồng
 Chiếc khăn gió ấm
@@ -131,3 +133,4 @@ Phía sau một cô gái
 Hà Nội mười hai mùa hoa
 Anh đau từ lúc em đi
 Bao tiền một mớ bình yên
+Hãy về đây bên anh 

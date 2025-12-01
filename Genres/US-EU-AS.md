@@ -1,15 +1,19 @@
 ### Japanese
 Shiawase no Recipe
-Sakurairo Maukoro
-
 ### Chinese
 Tháp rơi tự do
 Tay trái chỉ trăng
-
+### Mika Nakashima
+Sakurairo Maukoro
+Yuki no Hana
 ### Hatsune Miku
 Yume To Hazakura
 Hazy moon
-
+### Korean
+Forever
+I miss you/Bo go ship da
+Snow flower
+Gangnam style
 ### Others
 Unchained melody
 Dream on
@@ -38,5 +42,4 @@ Old town road
 Payphone 
 Adele
 Blinding lights
-Forever
-Gangnam style
+
