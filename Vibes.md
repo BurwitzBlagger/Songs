@@ -3,6 +3,8 @@
 Tháp rơi tự do
 Shiawase no reshipi tone F#
 Nói với em rằng (Official Audio)
+Lạ
+Buông
 ### Núi cao
 Lặng yên
 Tái bút anh yêu em
