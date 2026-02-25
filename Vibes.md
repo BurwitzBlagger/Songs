@@ -3,7 +3,6 @@
 Tháp rơi tự do
 Shiawase no reshipi tone F#
 Nói với em rằng (Official Audio)
-Lạ
 Buông
 ### Núi cao
 Lặng yên
@@ -33,3 +32,7 @@ Lời nhắn của mưa
 
 ### Hải Dương
 Lạc nhau có phải muôn đời
+
+## Chia tay mùa hạ
+Lạ
+Đi qua mùa hạ (?)
