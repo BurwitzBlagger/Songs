@@ -21,3 +21,4 @@ trên tình bạn dưới tình yêu
 Buông 
 Ngừng
 Quá lâu
+bước qua thế giới
