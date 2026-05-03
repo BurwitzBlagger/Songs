@@ -38,6 +38,7 @@ Lạc nhau có phải muôn đời
 ## Chia tay mùa hạ
 Lạ
 Đi qua mùa hạ (?)
+Xe đạp
 
 ## Trẻ thơ
 Giấc mơ thần tiên
