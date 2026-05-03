@@ -45,3 +45,5 @@ Bảy sắc cầu vồng
 Vẽ lại bức tranh của mẹ
 We are the world
 Hành trình của lá
+Phồn hoa
+Chưa bao giờ mẹ kể
